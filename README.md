@@ -1,0 +1,1 @@
+Detaylar Pdf dosyasında mevcut.
